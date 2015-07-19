@@ -2,7 +2,7 @@
 
 **Elly** has copper colored hair that is done in a braid that lies to one side, the other side hanging free and loose. A few locks fall over her forehead. Her brown eyes have a gentle set that compliments her delicate, freckled features, but shine with an inner fire like smoldering coals ready to ignite. 
 
-A flame colored scarf wraps around her neck, the tassled ends of which falling to about knee-length. The rest of her clothes are a yellow bikini, silk arm sleeves, and a brown miniskirt held in place by a belt with attached pouches. Her feet are protected blue and white boots that flare out at the ankle.
+A flame colored scarf wraps around her neck, the tassled ends of which falling to about knee-length. The rest of her clothes are a yellow bikini, silk arm sleeves, and a brown miniskirt held in place by a belt with attached pouches. Her feet are protected blue and white boots that flare out at the ankle. The tatoo on the side of her belly marks her as a member of the magic guild Fairy Tail.
 
 Her familiar is a pale-blue squirrel-like creature with a darker blue stripe that runs down its back.
 
